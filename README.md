@@ -1,0 +1,2 @@
+# nora
+Beaty stick
